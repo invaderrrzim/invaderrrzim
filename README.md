@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/3bab0b0e-14ee-4d2a-850d-bf271a75b615)
+![image](https://github.com/user-attachments/assets/894fee49-2c30-4749-924d-7892517114bf)
 ### **BYI:**<br/>
 i don't got a lot to say besides the obvious common sense.<br/>
 i mainly like to interact w/ people who like the same media as me!<br/>
@@ -15,4 +15,5 @@ i'm not on pony.town often, and only on it w/ friends!<br/>
 \
 ![image](https://media4.giphy.com/media/4F0ByPtwUDH5m/200w.gif?cid=6c09b952djo8ljzoikdzphwxy9uvdg81ez6tc7j85bbz36qs&ep=v1_gifs_search&rid=200w.gif&ct=g)
 
-![image](https://github.com/user-attachments/assets/4b402825-3ddf-4e2c-813a-8845c40b005e)
+![image](https://github.com/user-attachments/assets/085e33cf-cf7f-4a3c-8592-47b226583936)
+
