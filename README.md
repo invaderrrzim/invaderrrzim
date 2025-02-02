@@ -12,7 +12,5 @@ you can go to my [straw page](https://invdrrrzim.straw.page) for more info!<br/>
 \
 i'm not on pony.town often, and only on it w/ friends!<br/>
 \
-![image](https://media4.giphy.com/media/4F0ByPtwUDH5m/200w.gif?cid=6c09b952djo8ljzoikdzphwxy9uvdg81ez6tc7j85bbz36qs&ep=v1_gifs_search&rid=200w.gif&ct=g)
-
 ![image](https://github.com/user-attachments/assets/085e33cf-cf7f-4a3c-8592-47b226583936)
 
