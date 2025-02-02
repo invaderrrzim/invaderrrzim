@@ -9,8 +9,8 @@ i won't friend anyone under 16, and even then I am uncomfortable being close fri
 ***
 ### **ETC:**<br/>
 you can go to my [straw page](https://invdrrrzim.straw.page) for more info!<br/>
-\
-i'm not on pony.town often, and only on it w/ friends!<br/>
+i'm not on pony.town often; usually on it w/ friends!<br/>
+idk what else i'm just radically awkward heh
 \
 ![image](https://github.com/user-attachments/assets/085e33cf-cf7f-4a3c-8592-47b226583936)
 
