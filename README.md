@@ -1,10 +1,8 @@
+<p align="center">
 ![image](https://github.com/user-attachments/assets/7583580f-2bcb-446e-841a-ceb7ef5d9bb0)
+</p>
 
 
-### **BYI:**<br/>
-i don't got a lot to say besides the obvious common sense.<br/>
-i mainly like to interact w/ people who like the same media as me!<br/>
-\
 **i'm not very active on here!** if you wish to be friends, you can ask!<br/>
 please keep in mind i don't like to talk to people who are way younger than me.<br/>
 i won't friend anyone under 16, and even then I am uncomfortable being close friends with minors.<br/>
