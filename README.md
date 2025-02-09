@@ -1,7 +1,11 @@
 <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/7583580f-2bcb-446e-841a-ceb7ef5d9bb0" alt="gir doom">
 </p>
-
+<p align="center">
+19 / scemo / he/they
+</p>
+/
+BYI
 **i'm not very active on here!** if you wish to be friends, you can ask!<br/>
 please keep in mind i don't like to talk to people who are way younger than me.<br/>
 i won't friend anyone under 16, and even then I am uncomfortable being close friends with minors.<br/>
