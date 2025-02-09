@@ -15,7 +15,10 @@ i don't friend kids/young minors <br/>
 ***
 </p>
 <p align="center">
-you can go to my [straw page](https://invdrrrzim.straw.page) for more info
-</p>
+you can go to invdrrrzim.straw.page for more info <br/>
 
-***
+</p>
+<p align="center">
+<img width="20" src="https://github.com/user-attachments/assets/aa30593e-d919-4c3c-a558-b1fc25c49ca7" alt="green swirl">
+ 
+</p>
