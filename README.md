@@ -3,7 +3,7 @@
 </p>
 <p align="center">
 19 | scemo | he/they
-
+***
 BYI
 **i'm not very active on here!** if you wish to be friends, you can ask!<br/>
 please keep in mind i don't like to talk to people who are way younger than me.<br/>
