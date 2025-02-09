@@ -1,5 +1,5 @@
 ![image](https://github.com/user-attachments/assets/894fee49-2c30-4749-924d-7892517114bf)
-<p align="center">
+
 ### **BYI:**<br/>
 i don't got a lot to say besides the obvious common sense.<br/>
 i mainly like to interact w/ people who like the same media as me!<br/>
@@ -13,5 +13,4 @@ you can go to my [straw page](https://invdrrrzim.straw.page) for more info!<br/>
 i'm not on pony.town often; usually on it w/ friends!<br/>
 idk what else i'm just radically awkward heh<br/>
 \
-</p>
 ![image](https://github.com/user-attachments/assets/085e33cf-cf7f-4a3c-8592-47b226583936)
