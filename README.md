@@ -4,15 +4,3 @@
 
 <p align="center">
 19 | scemo | he/they
-
-BYI
-**i'm not very active on here!** if you wish to be friends, you can ask!<br/>
-please keep in mind i don't like to talk to people who are way younger than me.<br/>
-i won't friend anyone under 16, and even then I am uncomfortable being close friends with minors.<br/>
-***
-### **ETC:**<br/>
-you can go to my [straw page](https://invdrrrzim.straw.page) for more info!<br/>
-i'm not on pony.town often; usually on it w/ friends!<br/>
-idk what else i'm just radically awkward heh<br/>
-\
-![image](https://github.com/user-attachments/assets/085e33cf-cf7f-4a3c-8592-47b226583936)
