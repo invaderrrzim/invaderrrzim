@@ -3,9 +3,19 @@
 </p>
 
 <p align="center">
-19 | scemo | he/they
+19 | scemo | he/they <br/>
+
+  ***
 </p>
-___
 <p align="center">
-test
+the goblin who lives under a bridge<br/>
+usually on pony.town w/ friends<br/>
+i don't friend kids/young minors <br/>
+
+***
 </p>
+<p align="center">
+you can go to my [straw page](https://invdrrrzim.straw.page) for more info
+</p>
+
+***
