@@ -1,7 +1,6 @@
 <p align="center">
-![image](https://github.com/user-attachments/assets/7583580f-2bcb-446e-841a-ceb7ef5d9bb0)
+<img width="200" src="https://github.com/user-attachments/assets/7583580f-2bcb-446e-841a-ceb7ef5d9bb0" alt="gir doom">
 </p>
-
 
 **i'm not very active on here!** if you wish to be friends, you can ask!<br/>
 please keep in mind i don't like to talk to people who are way younger than me.<br/>
