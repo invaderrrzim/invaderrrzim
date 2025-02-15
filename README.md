@@ -10,7 +10,7 @@
 <p align="center">
 the goblin who lives under a bridge<br/>
 usually on pony.town w/ friends<br/>
-i don't friend kids/young minors <br/>
+i don't friend very young/old ppl <br/>
 
 ***
 </p>
